@@ -1,4 +1,8 @@
 <img width="3790" height="1817" alt="image" src="https://github.com/user-attachments/assets/65489b6e-3e0a-40bc-a33e-7d733cf1ed2a" />
+<img width="3797" height="1820" alt="image" src="https://github.com/user-attachments/assets/e6c5d6af-6462-4118-9ec4-01424323d1cf" />
+<img width="3800" height="1805" alt="image" src="https://github.com/user-attachments/assets/3097a523-7fab-46dc-a4e2-468e092c5012" />
+<img width="3802" height="1810" alt="image" src="https://github.com/user-attachments/assets/c3fb3679-37c8-45ba-95d7-538e37b15f7e" />
+
 🃏 **Lần 500:** Việt Anh số 96 và Việt Anh số 4 ngừng chiến! Họ cùng **Nhật Minh** thua ê chề ván thẻ bài. Cả ba **cười phô lô**!
 💥 **Lần 499:** Việt Anh số 38 cạnh tranh vị trí thuyền trưởng với Việt Anh số 49. Boong tàu đổ máu và... nước mắt (cười)!
 💥 **Lần 498:** Việt Anh số 89 đánh trả cực mạnh, gây chấn thương cho Việt Anh số 66. Boong tàu đổ máu và... nước mắt (cười)!
